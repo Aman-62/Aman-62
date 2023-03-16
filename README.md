@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @Aman-62
-- 💞️ I’m looking to collaborate on beginners level project to strengthen my skills.
 - 📫 How to reach me ? aman230630@gmai.com
